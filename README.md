@@ -1,16 +1,16 @@
-## Hi there 👋
+# Hi, I'm Peyman ✌️
 
-<!--
-**stlllpeyman/stlllpeyman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Software Engineering Trainee at Masterschool 💻
 
-Here are some ideas to get you started:
+### So far my vision remains a career path in AI Engineering and Web Development 🤖
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+#### You will learn more about me here as my journey continues – making progress every day 🧗
+
+#### For now allow me to simply share that ...
+
+With a background in journalism, photography, and videography, I bring a creative perspective to my work in technology. I’m passionate about combining my technical skills with creativity to build innovative solutions.
+
+In my free time, I'm an avid fan of cinema, music, and vinyl. I'm also an outdoor enthusiast who loves climbing and bouldering.
+
+Feel free to connect!
