@@ -2,10 +2,10 @@
 
 ## Software Engineering Trainee at Masterschool 💻
 
-### So far my vision remains a career path in AI Engineering and Web Development 🤖
+### Pursuing a career path in AI Engineering and Web Development 🤖
 
 
-#### You will learn more about me here as my journey continues – making progress every day 🧗
+#### You will learn more about me, here, as my journey continues – making progress every day 🧗
 
 #### For now allow me to simply share that ...
 
