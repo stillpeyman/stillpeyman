@@ -24,7 +24,7 @@ After years on the road as a tour manager and photographer—coordinating global
 
 > What drives me:
 
-🎯 Merging creative + technical skills to build human-centered, meaningful tools
+🎯 Merging creative + technical skills to build mindful and purpose-driven tools
 
 🎯 Lifelong learning with a growth mindset (and a love for making mistakes!)
 
@@ -36,4 +36,5 @@ After years on the road as a tour manager and photographer—coordinating global
 > 🧘🏾‍♂️ mindfulness 
 > 🧗🏾‍♂️ bouldering & climbing
 > 💫 and the creative process.
-### Intuition is your ally. No growth in the comfort zone.
+### Approaching work with awareness, intention, and empathy.
+### Guided by values, not just goals.
