@@ -32,9 +32,9 @@ After years on the road as a tour manager and photographer—coordinating global
 
 ------------------------------------------------------
 
-### Empowering myself through
+#### Empowering myself through
 > 🧘🏾‍♂️ mindfulness 
 > 🧗🏾‍♂️ bouldering & climbing
 > 💫 and the creative process.
-### Approaching work with awareness, intention, and empathy.
-### Guided by values, not just goals.
+#### Approaching work with awareness, intention, and empathy.
+#### Guided by values, not just goals.
