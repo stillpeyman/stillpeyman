@@ -30,10 +30,7 @@ After years on the road as a tour manager and photographer—coordinating global
 
 ------------------------------------------------------
 
-`Empowering myself through`
-> 🧘🏾‍♂️ mindfulness 
-> 🧗🏾‍♂️ bouldering & climbing
-> 💫 and the creative process.
+`Empowering myself through mindfulness, climbing, and the creative process.`
 
 `Approaching work with awareness, intention, and empathy.`
 
