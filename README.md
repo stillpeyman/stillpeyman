@@ -34,5 +34,7 @@ After years on the road as a tour manager and photographer—coordinating global
 > 🧘🏾‍♂️ mindfulness 
 > 🧗🏾‍♂️ bouldering & climbing
 > 💫 and the creative process.
+
 `Approaching work with awareness, intention, and empathy.`
+
 `Guided by values, not just goals.`
