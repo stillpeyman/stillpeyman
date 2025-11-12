@@ -31,11 +31,15 @@ What drives me:
 ------------------------------------------------------
 
 Outside the code editor:
+
 Photography | Cinema | Record Stores | Festivals
+
 Travel | Bouldering | Rock Climbing | Hiking
 
 ------------------------------------------------------
 
 Empowering myself through mindfulness, climbing and the creative process.
+
 Approaching work with awareness, intention, and empathy.
+
 Guided by values, not just goals.
