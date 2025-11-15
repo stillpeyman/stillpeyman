@@ -24,7 +24,7 @@ What drives me:
 
 -> Merging creative + technical skills to build mindful and purpose-driven tools
 
--> Lifelong learning with a growth mindset (and every mistakes is a step forward!)
+-> Lifelong learning with a growth mindset — every mistake is a step forward
 
 -> Creating, connecting, and contributing with purpose and independence
 
